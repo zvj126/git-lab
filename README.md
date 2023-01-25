@@ -1,1 +1,1 @@
-Zion Johnson, zvj126
+Zion Johnson, zvj126, zj876121@ohio.edu
